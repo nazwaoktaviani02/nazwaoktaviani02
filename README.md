@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nazwa Oktaviani
-- 👀 I’m interested in Data Analytics
+- 👀 I’m a data and UI design enthusiast
 - 🌱 I’m currently learning Data Analytics and Data Science
 - 📫 Feel free to contact me at nazwaoktaviani58@gmail.com
 - 😄 Pronouns: She/her
